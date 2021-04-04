@@ -93,7 +93,7 @@ You can follow us on the following social media.
 
 - [Twitter](https://twitter.com/atolye15)
 - [Instagram](https://instagram.com/atolye15)
-- [Linkedin](https://inkedin.com/company/atolye15)
+- [Linkedin](https://linkedin.com/company/atolye15)
 - [Youtube](https://youtube.com/c/atolye15)
 - [Dribbble](https://dribbble.com/atolye15)
 - [Medium](https://medium.com/atolye15)
